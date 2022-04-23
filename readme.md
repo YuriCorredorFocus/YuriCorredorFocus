@@ -1,4 +1,4 @@
-### Hi there, I'm Yuri Corredor 👋
+### Hi there, I'm Yuri Corredor 👋👋
 
 
 - 🔭 I’m currently working on becoming the best I can possibly be!
